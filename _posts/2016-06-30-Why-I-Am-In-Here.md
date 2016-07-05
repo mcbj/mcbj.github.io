@@ -13,6 +13,6 @@ I am doing this mostly because I am applying into the journalism school and I fe
 
 I also am doing this because I am a novice when it comes to technology and want to become more familiar with things such as github and codeanywhere and building websites. The only technology I am familiar with using is my iPhone an TV.
 
-
+![Corey](http://image.cdnllnwnl.xosnetwork.com/pics33/400/TV/TVMSYSABQRWLMHD.20150624142657.jpg)
 
 
